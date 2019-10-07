@@ -99,8 +99,8 @@ ABO 先婚后爱，连载中目前2更
 军阀少爷哪吒&梨园名伶敖丙
 
 28.[【藕饼】红和蓝（1）](http://sirensdream.lofter.com/post/30b85442_1c6b00de0) 作者：[似锦。](http://sirensdream.lofter.com/)
-校园au/ abo/沙雕欢乐向连载，已完结，很甜！
-太太的另一篇：[【藕饼】朝晖与皓月](http://sirensdream.lofter.com/post/30b85442_1c6c288ae) 
+校园au/ abo/沙雕欢乐向，
+太太的另一篇：[【藕饼】朝晖与皓月](http://sirensdream.lofter.com/post/30b85442_1c6c288ae) 连载中目前3更ww 
 现代/abo/心意互通，6k＋一发完
 
 29.[【藕饼ABO】李先生和敖先生（一）](http://youziningmengcha331.lofter.com/post/30aed618_1c6513da8) 作者：[柚子柠檬茶](http://youziningmengcha331.lofter.com/)
