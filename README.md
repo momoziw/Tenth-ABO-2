@@ -167,6 +167,9 @@ cp如题注意避雷，伪互攻向。OA配对，双*性/道*具/s&m/强x/调*�
 48.[府中春【ABO】](http://lianyuyiyu.lofter.com/post/1def7f29_1c667fd1d) 作者：[。。。](http://lianyuyiyu.lofter.com/)
 是连载，非典型abo，a×b，包办婚姻
 
-49.压轴是这篇推了很多很多次的文ww，abo先婚后爱的经典：
+49.[【藕饼】听说我媳妇儿喜欢我（上）](http://honeyteawaffles.lofter.com/post/1e370091_1c6c75402) 作者：[蜂蜜红茶华夫饼](http://honeyteawaffles.lofter.com/)
+也是一篇热门作品ww，已完结。协议结婚abo，内含失忆，双向暗恋，带蛋跑等等。
+
+50.压轴是这篇推了很多很多次的文ww，abo先婚后爱的经典：
 [【藕饼（R）】舒伯特玫瑰](http://huaixiashiliu209.lofter.com/post/309af1a8_1c66a46c6) 作者：折耳（她这个大号炸了） 小号：[槐夏十六](http://huaixiashiliu209.lofter.com/)
 
